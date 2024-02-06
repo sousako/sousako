@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sousako
-- 👀 I’m interested in aprender
+- 👀 I’m interested in aprender(;
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate ????
 - 📫 How to reach me não

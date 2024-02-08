@@ -2,7 +2,7 @@
 - 👀 I’m interested in aprender(;
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate ????
-- 📫 How to reach me não
+- 📫 How to reach melhor não
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ..
 

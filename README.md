@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...talvez..
 - 📫 How to reach me ...n
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...nenhum.
+- ⚡ Fun fact: ...todas.
 
 <!---
 sousako/sousako is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
